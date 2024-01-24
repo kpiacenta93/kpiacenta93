@@ -33,7 +33,7 @@ I am always on the lookout for new challenges and opportunities to grow. My goal
 
 - **Email:** [piacentakyle@gmail.com](mailto:piacentakyle@gmail.com)
 - **Phone:** (860) 918-7410
-- **LinkedIn:** [Your LinkedIn Profile URL]
+- **LinkedIn:** https://www.linkedin.com/in/kyle-piacenta/
 
 ---
 
