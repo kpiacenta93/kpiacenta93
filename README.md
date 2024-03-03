@@ -1,7 +1,3 @@
-Certainly! I'll integrate your new professional growth highlight about leading paired projects from design to completion in software engineering into your GitHub profile description:
-
----
-
 Kyle A. Piacenta  
 Welcome to My GitHub Profile!
 
